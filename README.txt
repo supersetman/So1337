@@ -8,6 +8,7 @@ VISION
 	- create an active community on meme coins
 	- get rich
 	- to be continued
+	
 ------------------------------
 
 MEMBERS:
